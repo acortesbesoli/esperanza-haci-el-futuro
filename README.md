@@ -1,6 +1,6 @@
 <b>L'Esperança</b>
 
-Actualment la societat està marcada per la crisi sanitària del covid-19, que ens ha portat a una crisi econòmica i a una desesperança.  <b>La crisi sanitària</b> ens ha trasbalsat les nostres vides, la manera de relacionar-nos, la manera de treballar, inclús la manera de pensar i ens està portant a part d’un nombre elevat de defuncions, una crisi econòmica amb més aturats, empresaris al límit de la ruina, persones amb menys recursos i un seguit de innumerables fets que ens condueixen a una desesperança crec jo, bastant generalitzada. 
+Actualment la societat està marcada per la <b>crisi sanitària del covid-19</b>, que ens ha portat a una <b>crisi econòmica</b> i a una desesperança.  La crisi sanitària ens ha trasbalsat les nostres vides, la manera de relacionar-nos, la manera de treballar, inclús la manera de pensar i ens està portant a part d’un nombre elevat de defuncions, una crisi econòmica amb més aturats, empresaris al límit de la ruina, persones amb menys recursos i un seguit de innumerables <b>fets que ens condueixen a una desesperança</b> crec jo, bastant generalitzada. 
 
 Com deia Aristòtil <b“l’esperança, és el somni de les persones despertes”</b>, per tant, si tenim desesperança vol dir que no creiem en el demà, en què tindrem un futur millor i en la possibilitat d’un canvi. Vol dir, que no creiem en que els somnis es poden fer realitat. Per tant, <b>una persona sense esperança, no lluita per estar millor, no treballa i es resigna</b>. Estem davant d’una societat perduda. 
 
